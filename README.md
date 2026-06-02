@@ -16,3 +16,17 @@ Created by Khan Muzammil using Canva AI.
 * Thumbnail Design
 * Visual Content Creation
 * AI-Assisted Design
+## Services
+
+- Thumbnail Design
+- Canva AI Design
+- Social Media Graphics
+- YouTube Content Design
+
+## Skills
+
+- Canva
+- ChatGPT
+- AI Tools
+- Content Creation
+- Graphic Design
